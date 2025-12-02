@@ -1,3 +1,6 @@
+> Latest resume for cybersecurity roles.  
+> Download the PDF version: [TinaChen_Cybersecurity_Resume.pdf](./TinaChen_Cybersecurity_Resume.pdf)
+
 # Tina (Wanting) Chen
 
 (808) 232-8190 · wantingchen1208@gmail.com  
